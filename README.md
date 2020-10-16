@@ -1,2 +1,2 @@
 # mc-exercise
-Code Fellows 201 Lab 15A
+Code Fellows Code 201 Lab 15A
