@@ -15,3 +15,7 @@ Did you hear about the monkeys who shared an amazon account?
 They were Prime-mates
 
 Don't use "beef-stew" as a computer password, it's not stroganoff.
+
+I don't trust stairs. They're always up to something!
+
+Why did the math book look so sad? because of all its problems.
