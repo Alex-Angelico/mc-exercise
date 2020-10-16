@@ -11,3 +11,7 @@ punchline: a politician
 Why don't eggs tell jokes?
 punchline: they'd crack each other up!
 
+Did you hear about the monkeys who shared an amazon account? 
+They were Prime-mates
+
+Don't use "beef-stew" as a computer password, it's not stroganoff.
